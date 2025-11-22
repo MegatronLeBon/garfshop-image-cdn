@@ -1,1 +1,1 @@
-# game icons for GarfShop
+# game icons for GarfShop.
